@@ -1,4 +1,4 @@
-varios
+
 — ¿Qué le dice una iguana a su hermana gemela? — Iguanita.
 
 — ¿Qué hace una abeja en el gimnasio? — ¡Zum-ba!
@@ -6,3 +6,12 @@ varios
 — ¿Cuál es el animal más antiguo? — La cebra, porque está en blanco y negro.
 
 — ¿Por qué las focas miran siempre hacia arriba? — ¡Porque ahí están los focos!
+
+— Un león se comió un jabón. Y ahora es puma.
+
+— ¿Cómo va Batman a su funeral? Batieso.
+
+— Qué hace una vaca con los ojos cerrados? Leche concentrada.
+
+— ¿De dónde vienen los hámster? De Hamsterdam.
+
